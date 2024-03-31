@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on quantum computing companies for internship and job
 - 📫 How to reach me:gnanendranaidun101@gmail.com
 - 😄 Pronouns: gnanu
-- ⚡ Fun fact: everything depends ultimately on mind and belief
+- ⚡ Fun fact: everything depends ultimately on mind's belief
