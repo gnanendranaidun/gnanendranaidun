@@ -3,7 +3,7 @@
 
 
 ## 🌐 Socials:
-#Check OUT my handles 🙂
+# Check OUT my handles 🙂
 <br/>
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/gnanu101_66100)<br/>
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/gnanendranaidun)<br/>
